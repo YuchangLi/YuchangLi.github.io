@@ -1,2 +1,0 @@
-# YuchangLi.github.io
-pages
